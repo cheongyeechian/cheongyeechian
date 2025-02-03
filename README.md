@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **cheongyeechian@gmail.com**
 
-- 📄 Know about my experiences [https://docs.google.com/document/d/1Il7mNH4wqPTWRMZ89DKr3JMeaZenRyG5tAE0w1SB1zQ/edit?usp=sharing](https://docs.google.com/document/d/1Il7mNH4wqPTWRMZ89DKr3JMeaZenRyG5tAE0w1SB1zQ/edit?usp=sharing)
+- 📄 Know about my experiences ([https://docs.google.com/document/d/1Il7mNH4wqPTWRMZ89DKr3JMeaZenRyG5tAE0w1SB1zQ/edit?usp=sharing](https://docs.google.com/document/d/1bu-ggY1C9b2ZLQS_1eWnSnqTcFo1zBi7aJdC9X_cjKQ/edit?usp=sharing))
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
